@@ -1,1 +1,1 @@
-my first readme
+I must be among the Gold fellowship members. 
